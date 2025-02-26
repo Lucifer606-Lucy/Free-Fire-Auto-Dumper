@@ -7,4 +7,4 @@ Discord Link : https://discord.gg/uvEHQ7wHaH
 
 The Rar Pass is : 1
 
-Special Thanns to Cheetah0xf ( Cheetah ).
+Special Thanns to @Cheetah0xf ( Cheetah ).
